@@ -2,7 +2,7 @@
 
 I am currently pursuing bachelors in Computer Science( 2023 batch)
 
- Learning and exploring computer science is my passion and learning new things is like glucose to my mind....
+ Learning and exploring computer science is my passion and learning new things are like glucose to my mind....
 
 
 
